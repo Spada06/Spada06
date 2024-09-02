@@ -8,3 +8,4 @@ Meu nome é: Maria Amélia
 
 ### Você pode entrar em contato comigo 📫
 
+![](https://tenor.com/pt-BR/view/bandeira-do-s%C3%A3o-paulo-s%C3%A3o-paulo-fc-torcedores-do-s%C3%A3o-paulo-tricolor-futebol-brasileiro-gif-18313991613208555832)
